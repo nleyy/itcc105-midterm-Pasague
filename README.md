@@ -1,1 +1,0 @@
-# itcc105-midterm-Pasague
